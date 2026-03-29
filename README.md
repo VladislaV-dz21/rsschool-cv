@@ -1,2 +1,2 @@
 https://VladislaV-dz21.github.io/rsschool-cv/cv
-Ссылка уже была
+https://VladislaV-dz21.github.io/rsschool-cv/ 
